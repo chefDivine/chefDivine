@@ -4,5 +4,5 @@ Entrepreneur & Future business Engineer
 🎁**Chris'spatry-My Business**
 I run **Chris'spastry**, a business spécialized
 ✅luxury gift boxes & surprise baskets
-✅Money for special occasions
+✅Money bouquets for special occasions
 ✅Elegant decorations for dinners & hotel rooms
